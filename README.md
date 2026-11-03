@@ -1,2 +1,0 @@
-# RIPS
-all my rips
